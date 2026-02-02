@@ -5,13 +5,17 @@
 
 Actually studying Computer Systems Engineering
 
-I'm very into computers, programming, music production and k-pop idols lol
+Currently Student Member, National Society of Professional Engineers (NSPE)
+
+I'm very into computers, programming, music production and korean culture
 
 Favorite Sports: Formula 1, MLB
 
 Teams: Scuderia Ferrari, Dodgers
 
-Currently learning: AWS, Haskell and DJango
+Currently learning: AWS
+
+
 
 ### IDEs
 
