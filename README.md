@@ -1,4 +1,4 @@
-![Header]([https://kpopping.com/documents/0a/4/800/NewJeans-Get-Up-2nd-EP-Photos-documents-15.jpeg?v=456a5](https://cdn.kpopping.com/kpics/2026/03/1774375441574-2h7sh8-0.jpg))
+![Header](https://cdn.kpopping.com/kpics/2026/03/1774375441574-2h7sh8-0.jpg)
 
 # Hello there, I'm Ricardo, known as Miados
 ## Free Palestine 🇵🇸!
